@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @piadln
+- 👀 I’m interested in film photography
+- 🌱 I’m currently learning Python
+- 😄 Pronouns: She/her
